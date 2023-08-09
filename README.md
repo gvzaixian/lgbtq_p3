@@ -1,16 +1,16 @@
-# lgbt websites from p0 recommended
+# lgbt websites from p3 recommended
 thegay mrgay and other best gay videos websites links share
 
-## gayporn gay videos
+## gay porn gay videos
 https://gayporn.one
 
-## gayporn gay videos
+## gay porn gay videos
 https://gayporn.homes
 
-## freeporn2go gay videos
+## free porn2go gay videos
 https://freeporn2go.buzz
 
-## freegaysexvideos gay videos
+## free gay sex videos gay videos
 https://freegaysexvideos.buzz
 
 
